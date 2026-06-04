@@ -1,4 +1,4 @@
-
+custom Script for anime vanguards is the best anime vanguards Script, featuring no cooldown and auto-collect. Safe and powerful for all your needs.
 
 
 
